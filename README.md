@@ -1,14 +1,14 @@
-#### brought by zellview network https://zellview.network
-#### contact zellview@posteo.de  
-
+brought by zellview network https://zellview.network
+contact zellview@posteo.de  
+  
 ## Nur für Ninjas
-nur für weibliche Personen mit dem Namen Ninja
+nur für Leute die Ninja heißen
 
 ## Ninjas only
-only for femal persons in law named Ninja
-    
-https://translate.google.com/?sl=de&tl=nl&text=nur%20f%C3%BCr%20Frauen&op=translate
-  
+only for people named Ninja
+
+https://translate.zellview.org
+
 en - Ninjas Only  
 nl - alleen voor Ninjas 
 pl - Tylko ninja  
